@@ -1,5 +1,5 @@
 
-### Hi I'm Patric 👋👱
+### Hi I'm Patrick 👋👱
 
 <br />
 
